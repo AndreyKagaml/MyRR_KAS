@@ -1,1 +1,1 @@
-Kahamlyk Andrii Khpi
+Kahamlyk Andrii
